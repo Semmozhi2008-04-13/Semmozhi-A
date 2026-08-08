@@ -39,6 +39,8 @@ I am a 2nd-year B.E. Computer Science Engineering student at **Chennai Institute
 - 🍃 **Natural Lover:** I find inspiration in the harmony of nature and bring that organic balance into my code and layouts.
 - 🧠 **Humble & Inquisitive:** I am a lifelong learner, always asking "how" and "why" to create more meaningful work.
 - 🤝 **Open to Collaborate:** I believe in weaving code with care and working together to build great things.
+<img width="347" height="371" alt="Screenshot 2026-08-09 025732" src="https://github.com/user-attachments/assets/91b6fec7-396b-4797-a4b7-8a7fe2e2813a" />
+<img width="563" height="298" alt="Screenshot 2026-08-09 025938" src="https://github.com/user-attachments/assets/dd18cde6-7b93-4800-8fa0-2a73cb92ed30" />
 
 ---
 
